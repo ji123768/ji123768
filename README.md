@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ji123768 
-- I WILL SHARE SOME DOCUMENT IN THIS RepositorY
+- I WILL SHARE SOME DOCUMENTs IN THIS RepositorY
